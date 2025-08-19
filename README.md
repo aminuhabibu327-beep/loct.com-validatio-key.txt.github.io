@@ -1,0 +1,1 @@
+# loct.com-validatio-key.txt.github.io
